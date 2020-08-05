@@ -1,2 +1,2 @@
 # mic.house
-all you have seen are TINY tastes of what i am capable of....
+the things you think are important give me a bit of a chub.
