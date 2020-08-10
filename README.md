@@ -1,2 +1,2 @@
 # mic.house
-the things you think are important give me a bit of a chub.
+i wonder how long it is going to take before you realize what's really going to happen
